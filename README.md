@@ -1,0 +1,1 @@
+# fiks_predikat
